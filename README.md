@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aiub-usmaner | aiub usmaner  | aiub abdullaev  | аюб абдуллаев 
-- 👋 from chechen republic | germany
+- 👋 from chechnya | germany
 - 👀 I’m interested in individual software development
 - 🌱 I’m currently learning agile project management
 - 📫 How to reach me - aiub.usmaner@gmail.com
